@@ -1,2 +1,2 @@
-# vmgroupscgf
-Send Flowers Online to Spread Smile in your Loved One's Life. Send Flowers &amp; Oder Now. Affordable Price. Midnight Delivery.
+# CGF
+Early Morning, Fixed Delivery &amp; Midnight Delivery Available. Order Online Now! Exclusive Gifts, Flowers and Cakes.  Mid-Night Delivery
